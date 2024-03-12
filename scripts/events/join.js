@@ -64,11 +64,11 @@ APPROVAL ALLOW IN THIS GROUP!!!
 <------------------------------>
 AND FOR ANY COMPLAINTS OR CONTACT BOT OPERATOR 
 
-DEVELOPER :Mohammad Nayan 
+DEVELOPER :MD JUBAED AHMMED JOY
 
 🟣Facebook Account Link: 
 
-https://www.facebook.com/www.xnxx.com169
+https://www.facebook.com/mdjubaet.ahmed.9
 
 🔵WHATSAPP NUMBER: wa.me/+8801709045888
 
